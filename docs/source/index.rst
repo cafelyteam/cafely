@@ -11,4 +11,4 @@ At Cafely, sustainability is key. We source our coffee beans from fair-trade-cer
 
 No more skimpy instant coffee packets - one Cafely packet provides enough coffee for a full, strong cup of Vietnamese coffee. Experience the best instant Vietnamese coffee with Cafely Instant Coffee Packets today.
 
-[https://cafely.com/collections/vietnamese-instant-coffee](https://cafely.com/collections/vietnamese-instant-coffee)
+https://cafely.com/collections/vietnamese-instant-coffee
