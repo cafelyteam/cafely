@@ -1,4 +1,4 @@
-Announcing Cafely The Best Instant Coffee
+Announcing Cafely, The Best Instant Coffee
 ===================================
 
 Introducing Cafely Instant Vietnamese Coffee: the best instant coffee with authentic Vietnamese flavors! Our instant coffee packs are perfect for busy lifestyles, delivering high-quality, fair-trade coffee wherever you go. 
